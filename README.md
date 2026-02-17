@@ -1,2 +1,2 @@
 # Karak-s
-Uploded karaoke for Madagascar
+Uploaded karaoke for Madagascar
